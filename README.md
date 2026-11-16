@@ -1,1 +1,1 @@
-# Technische-Hochschule-Deggendorf-THD-
+# Technische-Hochschule-Deggendorf-THD
